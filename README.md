@@ -1,1 +1,1 @@
-# infinitemindsmathclub.github.com
+# infinitemindsmathclub.github.io
